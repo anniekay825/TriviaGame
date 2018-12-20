@@ -10,33 +10,32 @@ You have 30 seconds to answer each question - just enough time to probably look 
 - Do you know top two selling spices in the world?
    --this one isn't on the quiz, but thought it was a fun random fact!  
    
-Scroll down for the answers.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Want to know the answers?  scroll down...
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
+..
 - Do you know the country with the longest coastline?  Yes :) take the quiz and find out where
 - Where are the largest number of pyramids? in a place with sand and rock (take the quiz)
 - What continent is cut into two fairly equal halves by the Tropic of Capricorn? Australia      (you guessed it, not on the quiz)
